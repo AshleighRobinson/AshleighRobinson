@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AshleighRobinson
+- 👀 I’m interested in .Recruitement 
+- 🌱 I’m currently learning more about cooking styles in the world 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 0662435484 / Alanis2ash@utlook.com
